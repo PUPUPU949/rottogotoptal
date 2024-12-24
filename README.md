@@ -1,1 +1,3 @@
 # rottogotoptal
+
+bjkhrftkfghnjdrgkp[rtgrpp[hnjrfffgphkgj;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;./;;;;;.;;;;;;;;;;;.;/;;m;;;;;;;;;;;,.;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;l;;;;;;;;;;;l;;;;;;;;;;;;;l;;;;;;;l;;;;;;;;;;l;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;;prwper[]sfdgtfhmknj gblvvowsqp;ed[rwftdtfghkygftgrpeorw[p;rl[odftkglgymkjnhylftfrewd[qdp;defdr]pgftgl;;;;;;;;;;;;;;;;;;;;;;;;;;;
