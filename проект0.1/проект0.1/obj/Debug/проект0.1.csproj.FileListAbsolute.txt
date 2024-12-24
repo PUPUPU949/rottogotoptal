@@ -1,0 +1,12 @@
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0.1.csproj.AssemblyReference.cache
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0._1.Form1.resources
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0._1.Form2.resources
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0._1.Properties.Resources.resources
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0.1.csproj.GenerateResource.cache
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0.1.csproj.CoreCompileInputs.cache
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\bin\Debug\проект0.1.exe.config
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\bin\Debug\проект0.1.exe
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\bin\Debug\проект0.1.pdb
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0.1.exe
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0.1.pdb
+C:\Users\Valentin\source\repos\проект0.1\проект0.1\obj\Debug\проект0._1.Form3.resources
